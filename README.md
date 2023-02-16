@@ -15,4 +15,4 @@ Here are some ideas to get you started:
 - ⚡ Fun fact: ...
 -->
 
-My name is Kimi Medina-Castellano and I am a fourth-year Math and Physics student at the University of Kentucky! You can reach me at kimi.medina@uky.edu. Ask me about getting into undergraduate research and I'll tell you all about it! I have experience with research funded/sponsored by the Department of Energy, National Science Foundation, and NASA.
+Hi! My name is Kimi Medina-Castellano. I am a recent graduate with a B.S. in Mathematical Sciences and minors in Computer Science and Physics from the University of Kentucky. You can reach me at kimimed73@gmail.com.
